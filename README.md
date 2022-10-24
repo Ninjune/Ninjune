@@ -1,1 +1,1 @@
-- I’m Nin. Check out my website if you want more details. (TBA)
+- I’m Nin. Check out my website if you want more details. (https://ninjune.dev/)
